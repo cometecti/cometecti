@@ -1,3 +1,5 @@
+<!-- nooo... don't look at my raw code >___< -->
+
 ### hi im wesley, awesome 17 year old guy doing whateva he wants
 my github is now an intro page. Nice. he/him
 
@@ -6,15 +8,15 @@ my github is now an intro page. Nice. he/him
 ------------------------------------------------------------------------------------------------------------------------------------
 
 
-my dni isnt terrible, just no vivizepop fans [even if you "don't" support her]
-</br>south park fans Get away ....
-</br>dream team fans, at this point Why do you exist
-</br>and tadc fans, glitch prod sucks ass bro
+my dni isnt terrible, **just no vivizepop fans** [**even if you "don't" support her**]
+</br>**south park fans** Get away ....
+</br>**dream team fans**, at this point Why do you exist
+</br>and **tadc fans**, **glitch prod** sucks ass bro
 
 ------------------------------------------------------------------
 
 but please interact if:
-</br> you're a fan of alan wake, control, devil may cry, dead space, infamous, half life, left 4 dead, littlebigplanet and <a href="https://rentry.co/thedarkplace">more here</a>
+</br> you're a fan of **alan wake**, **control**, **devil may cry**, **dead space**, **infamous**, **half life**, **left 4 dead**, **littlebigplanet** and <a href="https://rentry.co/thedarkplace">more here</a>
 
 ------------------------------------------------------------------
 
