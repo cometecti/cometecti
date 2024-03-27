@@ -1,4 +1,5 @@
 <!-- nooo... don't look at my raw code >___< -->
+<!-- genuinely this is just the madwork of man who usually only uses markdown while attempting html .... -->
 
 ### hi im wesley, awesome 17 year old guy doing whateva he wants
 my github is now an intro page. Nice. he/him
@@ -6,7 +7,6 @@ my github is now an intro page. Nice. he/him
 <img src="https://files.catbox.moe/0hjdbd.gif" width="300"/>
 
 ------------------------------------------------------------------------------------------------------------------------------------
-
 
 my dni isnt terrible, **just no vivizepop fans** [**even if you "don't" support her**]
 </br>**south park fans** Get away ....
@@ -21,6 +21,12 @@ but please interact if:
 ------------------------------------------------------------------
 
 if you REALLY want more info, just read my <a href="https://rentry.co/nightsprings">rentry</a>
+
+------------------------------------------------------------------
+
+now listening to: 
+
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ------------------------------------------------------------------
 
