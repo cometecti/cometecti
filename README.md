@@ -1,8 +1,10 @@
 <!-- nooo... don't look at my raw code >___< -->
 <!-- genuinely this is just the madwork of man who usually only uses markdown while attempting html .... -->
 
+
 ### hi im wesley, awesome 17 year old guy doing whateva he wants
-my github is now an intro page. Nice. he/him
+my github is now a ponytown intro page. Nice.
+</br> pronounces? #NOTWOKE! (he / him)
 
 <img src="https://files.catbox.moe/0hjdbd.gif" width="300"/>
 
