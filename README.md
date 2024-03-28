@@ -1,6 +1,7 @@
 <!-- nooo... don't look at my raw code >___< -->
 <!-- genuinely this is just the madwork of man who usually only uses markdown while attempting html .... -->
 
+<img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=view+count+!"/>
 
 ### hi im wesley, awesome 17 year old guy doing whateva he wants
 my github is now a ponytown intro page. Nice.
@@ -19,6 +20,10 @@ my dni isnt terrible, **just no vivizepop fans** [**even if you "don't" support 
 
 but please interact if:
 </br> you're a fan of **alan wake**, **control**, **devil may cry**, **dead space**, **infamous**, **half life**, **left 4 dead**, **littlebigplanet** and <a href="https://rentry.co/thedarkplace">more here</a>
+
+------------------------------------------------------------------
+
+i'm usually offtab . but whisper me and ill probably come back!
 
 ------------------------------------------------------------------
 
