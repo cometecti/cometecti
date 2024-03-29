@@ -23,7 +23,8 @@ but please interact if:
 
 ------------------------------------------------------------------
 
-i'm usually offtab . but whisper me and ill probably come back!
+i hang out around spawn! various locations but all at spawn :-P 
+</br>i'm usually offtab . but whisper me and ill probably come back!
 
 ------------------------------------------------------------------
 
