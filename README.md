@@ -7,7 +7,7 @@
 my github is now a ponytown intro page. Nice.
 </br> pronounces? #NOTWOKE! (he / him)
 
-<img src="https://files.catbox.moe/0hjdbd.gif" width="300"/>
+<a href="https://www.tumblr.com/daisanfar/722391227724627968/my-support-group?source=share"><img src="https://files.catbox.moe/h5lduo.png" height="400"/></a> 
 
 ------------------------------------------------------------------------------------------------------------------------------------
 
