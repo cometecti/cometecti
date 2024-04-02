@@ -11,7 +11,7 @@ my github is now a ponytown intro page. Nice.
 
 ------------------------------------------------------------------------------------------------------------------------------------
 
-my dni isnt terrible, **just no vivizepop fans** [**even if you "don't" support her**]
+my dni isnt terrible, **just no vivizepop fans** [**hazbin + helluva**] [**even if you "don't" support her**]
 </br>**south park fans** Get away ....
 </br>**dream team fans**, at this point Why do you exist
 </br>and **tadc fans**, **glitch prod** sucks ass bro
