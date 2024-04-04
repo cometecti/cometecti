@@ -27,6 +27,7 @@ but please interact if:
 
 i hang out around spawn! various locations but all at spawn :-P 
 </br>i'm usually offtab . but whisper me and ill probably come back!
+</br>i am professionally diagnosed autism and adhd, please be patient with me.
 
 ------------------------------------------------------------------
 
