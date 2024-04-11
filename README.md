@@ -21,7 +21,7 @@ my dni isnt terrible, **just no vivizepop fans** [**hazbin + helluva**] [**even 
 <img src="https://files.catbox.moe/h0h6mf.webp" height="150"/><img src="https://files.catbox.moe/3ty5nk.gif" height="150"/>
 
 but please interact if:
-</br> you're a fan of **alan wake**, **control**, **devil may cry**, **dead space**, **infamous**, **half life**, **left 4 dead**, **littlebigplanet**, **lupin the iii**, and <a href="https://rentry.co/thedarkplace">more here</a>
+</br> you're a fan of **alan wake**, **control**, **devil may cry**, **dead space**, **infamous**, **half life**, **left 4 dead**, **littlebigplanet**, **lupin the third**, and <a href="https://rentry.co/thedarkplace">more here</a>
 
 ------------------------------------------------------------------
 
