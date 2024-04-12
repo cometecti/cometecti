@@ -7,7 +7,7 @@
 my github is now a ponytown intro page. Nice.
 </br> pronounces? #NOTWOKE! (he / him)
 
-<a href="https://www.tumblr.com/daisanfar/722391227724627968/my-support-group?source=share"><img src="https://files.catbox.moe/h5lduo.png" height="400"/></a> 
+<img src="https://files.catbox.moe/1zqib4.jpg" height="400"/></a>
 
 ------------------------------------------------------------------------------------------------------------------------------------
 
@@ -18,18 +18,17 @@ my dni isnt terrible, **just no vivizepop fans** [**hazbin + helluva**] [**even 
 
 ------------------------------------------------------------------
 
-<img src="https://files.catbox.moe/3ty5nk.gif" height="150"/>
-
 but please interact if:
 </br> you're a fan of **alan wake**, **control**, **devil may cry**, **dead space**, **infamous**, **half life**, **left 4 dead**, **littlebigplanet**, **lupin the third**, and <a href="https://rentry.co/thedarkplace">more here</a>
 
 ------------------------------------------------------------------
 
-<img src="https://files.catbox.moe/fqz333.jpg" height="150"/>
+<img src="https://files.catbox.moe/fqz333.jpg" height="200"/> <img src="https://files.catbox.moe/zp9aul.jpg" height="200"/> <img src="https://files.catbox.moe/5dn51w.jpg" height="200"/>
 
 i hang out around spawn! various locations but all at spawn :-P 
 </br>i'm usually offtab . but whisper me and ill probably come back!
-</br>i am professionally diagnosed autism and adhd, please be patient with me.
+</br>i am professionally diagnosed with autism and adhd, please be patient with me.
+
 
 ------------------------------------------------------------------
 
