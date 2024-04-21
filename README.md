@@ -15,7 +15,7 @@ my dni isnt terrible, **just no vivizepop fans** [**hazbin + helluva**] [**even 
 </br>**south park fans** Get away ....
 </br>**dream team fans**, at this point Why do you exist
 </br>and **tadc fans**, **glitch prod** sucks ass bro
-</br> people 13 and under pls interact with caution
+</br> **people 13 and under pls interact with caution**
 
 ------------------------------------------------------------------
 
