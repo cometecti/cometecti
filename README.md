@@ -39,8 +39,9 @@ if you REALLY want more info, just read my <a href="https://rentry.co/nightsprin
 
  <img src="https://files.catbox.moe/4blg5v.png" height="200"/>
 
+now listening to:
 
-![spotify maow maow](https://spotify-recently-played-readme.vercel.app/api?user=lnsqq008qgesjwmrw5ezq1c5b)
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ------------------------------------------------------------------
 
