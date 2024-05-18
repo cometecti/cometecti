@@ -20,11 +20,11 @@ my dni isnt terrible, **just no vivizepop fans** [**hazbin + helluva**] [**even 
 ------------------------------------------------------------------
 
 but please interact if:
-</br> you're a fan of **alan wake**, **control**, **devil may cry**, **dead space**, **infamous**, **half life**, **left 4 dead**, **littlebigplanet**, **lupin the third**, **fortnite**, and <a href="https://rentry.co/lupin-zero">more here</a>
+</br> you're a fan of **alan wake**, **lupin the third**, **control**, **devil may cry**, **half life**, **left 4 dead**, **bakumatsu yankee**, **fortnite** and <a href="https://rentry.co/lupin-zero">more here</a>
 
 ------------------------------------------------------------------
 
-<img src="https://files.catbox.moe/fqz333.jpg" height="200"/> <img src="https://files.catbox.moe/zp9aul.jpg" height="200"/> <img src="https://files.catbox.moe/5dn51w.jpg" height="200"/>
+<img src="https://files.catbox.moe/fqz333.jpg" height="200"/> <img src="https://files.catbox.moe/5dn51w.jpg" height="200"/> <img src="https://files.catbox.moe/r8mxkz.jpg" height="200"/>
 
 i hang out around spawn! various locations but all at spawn :-P 
 </br>i'm usually offtab . but whisper me and ill probably come back!
