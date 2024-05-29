@@ -7,7 +7,7 @@
 my github is now a ponytown intro page. Nice.
 </br> pronounces? #NOTWOKE! (he / him)
 
-<img src="https://files.catbox.moe/1zqib4.jpg" height="400"/></a>
+<img src="https://files.catbox.moe/3mcp58.png" height="400"/></a>
 
 ------------------------------------------------------------------------------------------------------------------------------------
 
@@ -24,7 +24,7 @@ but please interact if:
 
 ------------------------------------------------------------------
 
-<img src="https://files.catbox.moe/fqz333.jpg" height="200"/> <img src="https://files.catbox.moe/5dn51w.jpg" height="200"/> <img src="https://files.catbox.moe/r8mxkz.jpg" height="200"/>
+<img src="https://files.catbox.moe/fqz333.jpg" height="200"/> <img src="https://files.catbox.moe/5dn51w.jpg" height="200"/> <img src="https://files.catbox.moe/1q4vyn.jpg" height="200"/>
 
 i hang out around spawn! various locations but all at spawn :-P 
 </br>i'm usually offtab . but whisper me and ill probably come back!
