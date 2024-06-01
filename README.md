@@ -27,6 +27,7 @@ but please interact if:
 <img src="https://files.catbox.moe/fqz333.jpg" height="200"/> <img src="https://files.catbox.moe/5dn51w.jpg" height="200"/> <img src="https://files.catbox.moe/1q4vyn.jpg" height="200"/>
 
 i hang out around spawn! various locations but all at spawn :-P 
+</br> I AM INCREDIBLY NERVOUS AROUND PEOPLE!!!! PLEASE!!!!
 </br>i'm usually offtab . but whisper me and ill probably come back!
 </br>i am professionally diagnosed with autism and adhd, please be patient with me.
 
