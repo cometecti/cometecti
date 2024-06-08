@@ -34,6 +34,7 @@ I hang out around spawn! Various locations but all at spawn.
 </br> I'm extremely awkward when it comes to talking to people, so apologies if I come off weird.
 </br>I'm usually offtab, but whisper me and I'll probably come back!
 </br>I am professionally diagnosed with Autism and ADHD, please be patient with me.
+</br> My grammar is all over the place, but for the sake of legibility, my README is typed up properly.
 
 <img src="https://files.catbox.moe/se72is.gif" height="100"/>
 
