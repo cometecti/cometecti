@@ -38,11 +38,6 @@ I hang out around spawn! Various locations but all at spawn.
 
 <img src="https://files.catbox.moe/se72is.gif" height="100"/>
 
-
-------------------------------------------------------------------
-
-If you REALLY want more info, just read my <a href="https://rentry.co/nightsprings">rentry!</a>
-
 ------------------------------------------------------------------
 
  <img src="https://files.catbox.moe/4blg5v.png" height="200"/>
