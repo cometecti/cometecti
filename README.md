@@ -23,7 +23,7 @@
 My special interests include **Lupin The Third** and **Alan Wake [+ RCU]**.
 
 But feel free to interact if you also enjoy:
-</br> **Devil May Cry**, **Ace Attorney**, **Half-Life**, **Left 4 Dead**, **Fortnite** and <a href="https://rentry.co/lupin-zero">more here.</a>
+</br> **Devil May Cry**, **Ace Attorney**, **Half-Life**, **Left 4 Dead**, **Fortnite** and <a href="https://rentry.co/shinlupin">more here.</a>
 
 <img src="https://files.catbox.moe/3m71cg.png" height="350"/>
 
