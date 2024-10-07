@@ -19,7 +19,7 @@
 
 ------------------------------------------------------------------
 ### Interests
-My special interests include **Lupin III** and **Alan Wake [+ RCU]**.
+My special interests include **Lupin III**, **Pokemon**, and **Alan Wake [+ RCU]**.
 
 But feel free to interact if you also enjoy:
 </br> **Devil May Cry**, **Ace Attorney**, **Half-Life**, **Left 4 Dead**, **Fortnite** and <a href="https://rentry.co/shinlupin">more here.</a>
@@ -33,7 +33,6 @@ I hang out around spawn! Various locations but all at spawn.
 </br> I'm extremely awkward when it comes to talking to people, so apologies if I come off weird.
 </br>I'm usually offtab, but whisper me and I'll probably come back!
 </br>I am professionally diagnosed with Autism and ADHD, please be patient with me.
-</br> My grammar is all over the place, but for the sake of legibility, my README is typed up properly.
 
 <img src="https://files.catbox.moe/ua7vww.png" height="350"/>
 
