@@ -19,7 +19,7 @@
 
 ------------------------------------------------------------------
 ### Interests
-My special interests include **Lupin The Third** and **Alan Wake [+ RCU]**.
+My special interests include **Lupin III** and **Alan Wake [+ RCU]**.
 
 But feel free to interact if you also enjoy:
 </br> **Devil May Cry**, **Ace Attorney**, **Half-Life**, **Left 4 Dead**, **Fortnite** and <a href="https://rentry.co/shinlupin">more here.</a>
