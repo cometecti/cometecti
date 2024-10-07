@@ -13,7 +13,6 @@
 **No Vivizepop fans** [**Hazbin + Helluva**] [**Even if you "don't" support her**.]
 </br>**South Park fans**,
 </br>**Dream Team fans**,
-</br>and **The Amazing Digital Circus fans**, **Glitch Productions is bad**.
 </br> **People 13 and under please interact with caution**.
 
 <img src="https://files.catbox.moe/doduep.png" height="350"/>
