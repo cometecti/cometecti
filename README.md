@@ -1,52 +1,24 @@
 <!-- nooo... don't look at my raw code >___< -->
 <!-- genuinely this is just the madwork of man who usually only uses markdown while attempting html .... -->
 
-<img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/>
 
-### Hello I'm Wes, I'm a 17 year old autistic male!
-<img src="https://files.catbox.moe/j0umja.png" height="400"/></a>
-</br>My pronouns are he/him!
+ 
 
-------------------------------------------------------------------------------------------------------------------------------------
+<p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-### DNI:
-**No Vivizepop fans** [**Hazbin + Helluva**] [**Even if you "don't" support her**.]
-</br>**South Park fans**,
-</br>**Dream Team fans**,
-</br> **People 13 and under please interact with caution**.
+<p align="center"><a href="https://www.tumblr.com/aziarts/760970024784691200/space-dandy?source=share"><img src="https://github.com/user-attachments/assets/ccb782a6-3821-494d-a6c5-14c178cbb989" height="450"/></a></p>
+<p align="center">wes ☆ 7teen ☆ he/him</p>
 
-<img src="https://files.catbox.moe/doduep.png" height="350"/>
+***
+<p align="center"> DNI </p>
+<p align="center"> proshippers, vivziepop fans, south park fans, people under 13 </p>
 
-------------------------------------------------------------------
-### Interests
-My special interests include **Lupin III**, **Pokemon**, and **Alan Wake [+ RCU]**.
+***
+<p align="center"> INT </p>
+<p align="center"> people who share my <a href="https://rentry.co/shinlupin">interests</a> </p>
 
-But feel free to interact if you also enjoy:
-</br> **Devil May Cry**, **Ace Attorney**, **Half-Life**, **Left 4 Dead**, **Fortnite** and <a href="https://rentry.co/shinlupin">more here.</a>
+***
 
-<img src="https://files.catbox.moe/3m71cg.png" height="350"/>
+<p align="center">cool websites:
 
-------------------------------------------------------------------
-### Before you interact:
-
-I hang out around spawn! Various locations but all at spawn.
-</br> I'm extremely awkward when it comes to talking to people, so apologies if I come off weird.
-</br>I'm usually offtab, but whisper me and I'll probably come back!
-</br>I am professionally diagnosed with Autism and ADHD, please be patient with me.
-
-<img src="https://files.catbox.moe/ua7vww.png" height="350"/>
-
-------------------------------------------------------------------
-
- <img src="https://files.catbox.moe/we349y.jpg" height="200"/>
-
-Now listening to:
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&redirect=true)
-
-------------------------------------------------------------------
-
-Cool websites:
-
-<a href="https://smokepowered.com"><img src="http://smokepowered.com/smoke.gif" height="33"/></a> 
-<a href="https://epicblazed.com"><img src="http://smokepowered.com/EpicBlazedButton.png" height="33"/></a>
+<p align="center"><a href="https://smokepowered.com"><img src="http://smokepowered.com/smoke.gif" height="33"/></a> <a href="https://epicblazed.com"><img src="http://smokepowered.com/EpicBlazedButton.png" height="33"/></a>
