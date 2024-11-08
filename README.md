@@ -15,7 +15,7 @@
 
 ***
 <p align="center"> INT </p>
-<p align="center"> people who share my <a href="https://rentry.co/shinlupin">interests</a> </p>
+<p align="center"> people who share my <a href="https://cometecti.straw.page/interests">interests</a> </p>
 
 ***
 
