@@ -22,4 +22,5 @@
 
 <p align="center">cool websites:
 
-<p align="center"><a href="https://smokepowered.com"><img src="http://smokepowered.com/smoke.gif" height="33"/></a> <a href="https://epicblazed.com"><img src="http://smokepowered.com/EpicBlazedButton.png" height="33"/></a>
+<p align="center"><a href="https://smokepowered.com"><img src="http://smokepowered.com/smoke.gif" height="33"/></a> 
+<a href="https://epicblazed.com"><img src="http://smokepowered.com/EpicBlazedButton.png" height="33"/></a>
