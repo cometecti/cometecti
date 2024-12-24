@@ -6,9 +6,8 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-<p align="center"><a href="https://www.tumblr.com/smiledog15578/718542449015980032/random-stuff-part-3?source=share"><img src="https://github.com/user-attachments/assets/be69c801-058b-4e48-8c60-00521433d9a5" height="450"/></a></p>
+<p align="center"><img src="https://github.com/user-attachments/assets/fe255d76-090c-44ee-81ac-90dc9dea9bb2" height="450"/></a></p>
 <p align="center">wes ☆ 7teen ☆ he/him</p>
-
 
 ***
 <p align="center"> DNI </p>
