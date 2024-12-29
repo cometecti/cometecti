@@ -19,7 +19,7 @@
 <p align="center"> people who share my <a href="https://cometecti.straw.page/interests">interests</a> </p>
 
 ***
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&cover_image=true&theme=novatorem&show_offline=true&background_color=324a22&interchange=false&bar_color=699454&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&cover_image=true&theme=novatorem&show_offline=true&background_color=394f3d&interchange=true&bar_color=699d62&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ***
 
 <p align="center">cool websites:
