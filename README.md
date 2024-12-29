@@ -3,6 +3,7 @@
 
 
  
+<div align="center">
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
@@ -17,6 +18,8 @@
 <p align="center"> INT </p>
 <p align="center"> people who share my <a href="https://cometecti.straw.page/interests">interests</a> </p>
 
+***
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&cover_image=true&theme=novatorem&show_offline=true&background_color=324a22&interchange=false&bar_color=699454&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ***
 
 <p align="center">cool websites:
