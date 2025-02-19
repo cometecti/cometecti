@@ -9,7 +9,7 @@
 
 
 <p align="center"><img src="https://github.com/user-attachments/assets/8f176e6e-6269-4555-b4ea-65e657fd0cf1" height="450"/></a></p>
-<p align="center">Wes ☆ 7teen ☆ He/Him</p>
+<p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
 ***
 <p align="center"> DNI </p>
