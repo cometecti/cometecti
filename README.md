@@ -14,6 +14,7 @@
 ***
 <p align="center"> DNI </p>
 <p align="center"> Proshippers, Vivziepop fans, South Park fans, people under 13 </p>
+<p align="center"> Also fandoms DNI unless I interact first, please and thank you </p>
 
 ***
 <p align="center"> INT </p>
