@@ -7,8 +7,7 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-
-<p align="center"><img src="https://github.com/user-attachments/assets/8f176e6e-6269-4555-b4ea-65e657fd0cf1" height="450"/></a></p>
+https://github.com/user-attachments/assets/ead5a271-3e6c-4134-9146-a2d53f0e6730
 <p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
 ***
@@ -19,11 +18,6 @@
 ***
 <p align="center"> INT </p>
 <p align="center"> People who share my <a href="https://cometecti.straw.page/interests">interests</a> </p>
-
-***
-
-
-https://github.com/user-attachments/assets/ead5a271-3e6c-4134-9146-a2d53f0e6730
 
 ***
 
