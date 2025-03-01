@@ -20,11 +20,6 @@
 <p align="center"> INT </p>
 <p align="center"> People who share my <a href="https://cometecti.straw.page/interests">interests</a> </p>
 
-
-***
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&cover_image=true&theme=novatorem&show_offline=false&background_color=5ca045&interchange=true&bar_color=96ce93&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=lnsqq008qgesjwmrw5ezq1c5b&redirect=true)
-
 ***
 
 
