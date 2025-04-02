@@ -17,7 +17,7 @@ https://github.com/user-attachments/assets/ead5a271-3e6c-4134-9146-a2d53f0e6730
 
 ***
 <p align="center"> INT </p>
-<p align="center"> People who share my <a href="https://cometecti.straw.page/interests">interests</a> </p>
+<p align="center"> People who share my <a href="https://rentry.co/cometecti">interests</a> </p>
 
 ***
 
