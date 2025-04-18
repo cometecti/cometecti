@@ -11,6 +11,10 @@ https://github.com/user-attachments/assets/ead5a271-3e6c-4134-9146-a2d53f0e6730
 <p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
 ***
+
+IWEC for I have severe social anxiety and probably won't respond to anything aside from crowns.
+
+***
 <p align="center"> DNI </p>
 <p align="center"> Proshippers, Vivziepop fans, South Park fans, people under 13 </p>
 <p align="center"> I block and hide freely idgaf </p>
