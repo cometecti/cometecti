@@ -7,7 +7,11 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-https://github.com/user-attachments/assets/ead5a271-3e6c-4134-9146-a2d53f0e6730
+
+https://github.com/user-attachments/assets/fdc7eb9f-863a-458e-ac67-448545270ca2
+
+<p align="center"> <a href="https://www.tumblr.com/cloverscomrade/774758683232075776?source=share">og post for above</a>
+
 <p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
 ***
