@@ -8,7 +8,12 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
 
-https://github.com/user-attachments/assets/fdc7eb9f-863a-458e-ac67-448545270ca2
+
+
+
+https://github.com/user-attachments/assets/8f6f398a-71b7-464b-a799-b2fd2696483b
+
+
 
 <p align="center"> <a href="https://www.tumblr.com/cloverscomrade/774758683232075776?source=share">og post for above</a>
 
