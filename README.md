@@ -11,11 +11,14 @@
 
 
 
-https://github.com/user-attachments/assets/8f6f398a-71b7-464b-a799-b2fd2696483b
 
 
 
-<p align="center"> <a href="https://www.tumblr.com/cloverscomrade/774758683232075776?source=share">og post for above</a>
+https://github.com/user-attachments/assets/f3800c8e-c551-4c13-8eb3-6b8d1840e6ce
+
+
+
+<p align="center"> <a href="https://www.tumblr.com/larkstonguesinaspicpart1/761025534018912256?source=share">og post for above</a>
 
 <p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
