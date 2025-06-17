@@ -11,14 +11,9 @@
 
 
 
+https://github.com/user-attachments/assets/4c9ae86d-8179-4bdb-aa81-f03e1720d347
 
 
-
-https://github.com/user-attachments/assets/f3800c8e-c551-4c13-8eb3-6b8d1840e6ce
-
-
-
-<p align="center"> <a href="https://www.tumblr.com/larkstonguesinaspicpart1/761025534018912256?source=share">og post for above</a>
 
 <p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
