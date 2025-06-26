@@ -22,7 +22,7 @@ https://github.com/user-attachments/assets/e818bc4a-0ad3-4cc9-8ca2-275e5882d593
 
 
 
-<p align="center">Wes ☆ 8teen ☆ He/Him</p>
+# <p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
 ***
 
