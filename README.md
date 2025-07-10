@@ -43,7 +43,7 @@ IWEC for I have severe social anxiety and probably won't respond to anything asi
 
 ***
 <p align="center"> INT </p>
-<p align="center"> People who share my <a href="https://rentry.co/cometecti#interests">interests</a> </p>
+<p align="center"> People who share my <a href="https://rentry.co/cometecti-ext-int">interests</a> </p>
 
 ***
 
