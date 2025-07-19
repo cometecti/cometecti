@@ -11,15 +11,7 @@
 
 
 
-
-
-
-
-
-
-https://github.com/user-attachments/assets/400abf08-5be5-473c-8902-8712b3b417fc
-
-
+![1bjw6n](https://github.com/user-attachments/assets/92672693-ac9e-4867-a15f-17e08b7e9e22)
 
 
 
@@ -34,16 +26,6 @@ https://github.com/user-attachments/assets/400abf08-5be5-473c-8902-8712b3b417fc
 ***
 
 IWEC for I have severe social anxiety and probably won't respond to anything aside from crowns.
-
-***
-<p align="center"> DNI </p>
-<p align="center"> Proshippers, Vivziepop fans, South Park fans, people under 13 </p>
-<p align="center"> I block and hide freely idgaf </p>
-<p align="center"> Also fandoms DNI unless I interact first, please and thank you </p>
-
-***
-<p align="center"> INT </p>
-<p align="center"> People who share my <a href="https://rentry.co/cometecti-ext-int">interests</a> </p>
 
 ***
 
