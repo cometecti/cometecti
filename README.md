@@ -7,7 +7,8 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-![alex dance](https://github.com/user-attachments/assets/d3a34a12-563e-42e5-97f6-72d4bce63b00)
+
+![aww](https://github.com/user-attachments/assets/346d5846-a01e-4d57-be31-8595a5d1fcf1)
 
 
 # <p align="center">Wes ☆ 8teen ☆ He/Him</p>
