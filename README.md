@@ -8,7 +8,8 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
 
-![aww](https://github.com/user-attachments/assets/346d5846-a01e-4d57-be31-8595a5d1fcf1)
+![awww](https://github.com/user-attachments/assets/3d15bc2d-188c-448e-92ee-7a5b5d6dcd97)
+
 
 
 # <p align="center">Wes ☆ 8teen ☆ He/Him</p>
