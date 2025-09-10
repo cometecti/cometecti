@@ -8,7 +8,7 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
 
-![awww](https://github.com/user-attachments/assets/3d15bc2d-188c-448e-92ee-7a5b5d6dcd97)
+![i feel nauseous](https://github.com/user-attachments/assets/c40254ee-a128-492d-a343-a68ad061dcfe)
 
 
 
