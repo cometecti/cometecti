@@ -2,7 +2,8 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-![run](https://github.com/user-attachments/assets/fde9ff89-a60d-4358-bc24-09b3e75d3c5c)
+![howard and vince dance](https://github.com/user-attachments/assets/d43e104a-af2c-4d14-ac47-576309852d42)
+
 
 # <p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
