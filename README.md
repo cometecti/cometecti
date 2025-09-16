@@ -7,7 +7,9 @@
 
 # <p align="center">Wes ☆ 8teen ☆ He/Him</p>
 
-IWEC *always* for I have severe social anxiety and probably won't respond to anything aside from crowns.
+IWEC *always* for I have severe social anxiety and probably won't respond to anything aside from crowns. 
+
+I am extremely critical of all the media I consume.
 
 ***
 
