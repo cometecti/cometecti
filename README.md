@@ -5,7 +5,7 @@
 ![howard and vince dance](https://github.com/user-attachments/assets/d43e104a-af2c-4d14-ac47-576309852d42)
 
 
-## <p align="center">Wes ☆ 8teen ☆ He/Him</p>
+## <p align="center">Wes ☆ 8teen ☆ He/Him ☆ AuDHD</p>
 
 
 I like a ton of British television, my biggest interests are Taskmaster (and Alex Horne), The Mighty Boosh, Inside No. 9/The League of Gentlemen/Psychoville, and Doctor Who (classic and modern).
