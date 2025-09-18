@@ -11,6 +11,8 @@ IWEC *always* for I have severe social anxiety and probably won't respond to any
 
 I am extremely critical of all the media I consume.
 
+DNI only applies to under 13s and profics.
+
 ***
 
 [![scrobbler](https://lastfm-recently-played.vercel.app/api?user=licecake&count=2&width=600&loved=true&show_user=header)](https://www.last.fm/user/licecake)
