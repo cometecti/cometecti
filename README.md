@@ -8,7 +8,7 @@
 ## <p align="center">Wes ☆ 8teen ☆ He/Him ☆ AuDHD</p>
 
 
-I like a ton of British television, my biggest interests are Taskmaster (and Alex Horne and The Horne Section and No More Jockeys), The Mighty Boosh, Inside No. 9/The League of Gentlemen/Psychoville, and Doctor Who (classic and modern).
+I like a ton of British television, huge Britcom fan! My biggest interests are Taskmaster plus adjacents, The Mighty Boosh, Inside No. 9/The League of Gentlemen/Psychoville, and Doctor Who (classic and modern).
 
 ***
 
