@@ -2,9 +2,9 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-*Fix me up with a drink and cigarette, helps me think I'm sure that someone else should pay the price for what I've gone and done.*
+[*Fix me up with a drink and cigarette, helps me think I'm sure that someone else should pay the price for what I've gone and done.*](https://arthursharpe.bandcamp.com/track/i-give-in)
 
-![howard and vince dance](https://github.com/user-attachments/assets/d43e104a-af2c-4d14-ac47-576309852d42)
+![howard dance](https://github.com/user-attachments/assets/b58166cd-ba19-4513-ad2f-e369a14424d2)
 
 
 ## <p align="center">Wes ☆ 8teen ☆ He/Him ☆ AuDHD</p>
