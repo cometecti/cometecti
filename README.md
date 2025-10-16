@@ -23,13 +23,16 @@ I am extremely critical of all the media I consume.
 
 DNI only applies to under 13s and profics.
 
+I'm not really on any social media nor will I ever have a Rentry or Strawpage. Please do not ask me for any of my socials unless I'm comfortable.
+
 ***
 
 [![scrobbler](https://lastfm-recently-played.vercel.app/api?user=licecake&count=2&width=600&loved=true&show_user=header)](https://www.last.fm/user/licecake)
 
 ***
 
-![i feel nauseous](https://github.com/user-attachments/assets/c40254ee-a128-492d-a343-a68ad061dcfe)
+
+![moss speedwalk](https://github.com/user-attachments/assets/c64de6bd-8353-46f9-83ac-8b39e7b22191)
 
 ***
 
