@@ -32,7 +32,8 @@ I'm not really on any social media nor will I ever have a Rentry or Strawpage. P
 ***
 
 
-![moss speedwalk](https://github.com/user-attachments/assets/c64de6bd-8353-46f9-83ac-8b39e7b22191)
+![kryten and rimmer shuffle](https://github.com/user-attachments/assets/0b31fc83-cebd-476e-bd07-46189409168f)
+
 
 ***
 
