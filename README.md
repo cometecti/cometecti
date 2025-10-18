@@ -2,12 +2,12 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-[*Fix me up with a drink and cigarette, helps me think I'm sure that someone else should pay the price for what I've gone and done.*](https://arthursharpe.bandcamp.com/track/i-give-in)
 
-![howard dance](https://github.com/user-attachments/assets/b58166cd-ba19-4513-ad2f-e369a14424d2)
+![roy and moss giggle](https://github.com/user-attachments/assets/53ec6cae-2a69-48a8-9dba-4ac7de971894)
 
 
-## <p align="center">Wes ☆ 8teen ☆ He/Him ☆ AuDHD</p>
+
+## <p align="center">Wesley \ 18 \ He / Him \ AuDHD</p>
 
 
 I like a ton of British comedies. Big ones are: The IT Crowd, The Mighty Boosh, Inside No. 9/Psychoville/The League of Gentlemen, Peep Show, and a lot more that are comedy adjacent (Taskmaster and Doctor Who \[modern and classic]).
