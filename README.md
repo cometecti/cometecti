@@ -10,7 +10,7 @@
 ## <p align="center">Wesley \ 18 \ He / Him \ AuDHD</p>
 
 
-I like a ton of British comedies. Big ones are: The IT Crowd, The Mighty Boosh, Inside No. 9/Psychoville/The League of Gentlemen, Peep Show, and a lot more that are comedy adjacent (Taskmaster and Doctor Who \[modern and classic]).
+I like a ton of British comedies. Big ones are: The IT Crowd, Red Dwarf, The Mighty Boosh, Inside No. 9/Psychoville/The League of Gentlemen, Peep Show, and a lot more that are comedy adjacent (Taskmaster and Doctor Who \[modern and classic]).
 
 ***
 ![rimmer dance](https://github.com/user-attachments/assets/12f7be41-ba2c-4d74-a89d-f14048e28f08)
