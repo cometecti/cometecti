@@ -13,7 +13,7 @@
 I like a ton of British comedies. Big ones are: The IT Crowd, The Mighty Boosh, Inside No. 9/Psychoville/The League of Gentlemen, Peep Show, and a lot more that are comedy adjacent (Taskmaster and Doctor Who \[modern and classic]).
 
 ***
-![insta](https://github.com/user-attachments/assets/138b77b2-06f5-4051-8bfa-b344262763e9)
+![rimmer dance](https://github.com/user-attachments/assets/12f7be41-ba2c-4d74-a89d-f14048e28f08)
 
 Before you interact, please know:
 ----
@@ -32,7 +32,8 @@ I'm not really on any social media nor will I ever have a Rentry or Strawpage. P
 ***
 
 
-![kryten and rimmer shuffle](https://github.com/user-attachments/assets/0b31fc83-cebd-476e-bd07-46189409168f)
+![insta](https://github.com/user-attachments/assets/138b77b2-06f5-4051-8bfa-b344262763e9)
+
 
 
 ***
