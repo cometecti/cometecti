@@ -7,13 +7,13 @@
 
 
 
-## <p align="center">Wesley \ 18 \ He / Him \ AuDHD</p>
+## <p align="center">Wesley - 18 - He/Him - AuDHD</p>
 
-
-I like a ton of British comedies. Big ones are: The IT Crowd, Red Dwarf, The Mighty Boosh, Inside No. 9/Psychoville/The League of Gentlemen, Peep Show, and a lot more that are comedy adjacent (Taskmaster and Doctor Who \[modern and classic]).
+I like a ton of British comedies. Current favs are: The IT Crowd, Red Dwarf, The Mighty Boosh, Peep Show, and a lot more that are comedy adjacent (Taskmaster and Doctor Who \[modern and classic]).
 
 ***
-![rimmer dance](https://github.com/user-attachments/assets/12f7be41-ba2c-4d74-a89d-f14048e28f08)
+![lister and rimmer giggle](https://github.com/user-attachments/assets/8a0ce924-2c3d-4a6e-8006-aabb3d0b2eec)
+
 
 Before you interact, please know:
 ----
@@ -32,7 +32,7 @@ I'm not really on any social media nor will I ever have a Rentry or Strawpage. P
 ***
 
 
-![insta](https://github.com/user-attachments/assets/138b77b2-06f5-4051-8bfa-b344262763e9)
+![markjez hug](https://github.com/user-attachments/assets/1ca7735d-e693-401a-bc74-91995cb5debd)
 
 
 
