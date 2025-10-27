@@ -12,7 +12,8 @@
 I like a ton of British comedies. Current favs are: The IT Crowd, Red Dwarf, The Mighty Boosh, Peep Show, and a lot more that are comedy adjacent (Taskmaster and Doctor Who \[modern and classic]).
 
 ***
-![lister and rimmer giggle](https://github.com/user-attachments/assets/8a0ce924-2c3d-4a6e-8006-aabb3d0b2eec)
+
+![lister and rimmer kiss](https://github.com/user-attachments/assets/45b6454f-e44e-4558-89ee-7cfad99ff38f)
 
 
 Before you interact, please know:
