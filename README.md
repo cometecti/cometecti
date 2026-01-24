@@ -1,8 +1,34 @@
-<center>
+<div align="center">
 
-![roy and moss kiss (1)](https://github.com/user-attachments/assets/5f0847c0-72a5-4995-a35c-9ed9406eb392)
-![howince kiss 2](https://github.com/user-attachments/assets/acff0011-0705-4010-a7ec-5118b8e1d896)
-![markjez kiss](https://github.com/user-attachments/assets/6fe3f66e-aa56-4f0a-bc42-e50c693c1f66)
-![lister and rimmer kiss](https://github.com/user-attachments/assets/1acdd467-929c-4597-997e-a77c11fc5170)
+<p align="center"><img src="https://komarev.com/ghpvc/?username=cometecti&color=657cc2&style=plastic&label=View+Count!"/></p> 
 
-</center>
+
+
+
+https://github.com/user-attachments/assets/50086177-3e01-44ca-a9d5-3872e1a30567
+
+
+
+
+
+# <p align="center">Wes ☆ 8teen ☆ He/Him</p>
+
+Massive Britcom fan.
+
+IWEC *always* for I have severe social anxiety and probably won't respond to anything aside from crowns.
+
+Not looking to make new friends.
+
+I am extremely critical of all the media I consume.
+
+***
+
+<img width="398" height="321" alt="image" src="https://github.com/user-attachments/assets/ed63cded-8036-4bf9-9b51-638c6b05f7bd" />
+
+
+***
+
+<p align="center">Cool websites:
+
+<p align="center"><a href="https://smokepowered.com"><img src="http://smokepowered.com/smoke.gif" height="33"/></a> 
+<a href="https://epicblazed.com"><img src="http://smokepowered.com/EpicBlazedButton.png" height="33"/></a>
