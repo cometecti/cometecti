@@ -13,8 +13,6 @@ https://github.com/user-attachments/assets/50086177-3e01-44ca-a9d5-3872e1a30567
 
 # <p align="center">Wes ☆ 9teen ☆ He/Him</p>
 
-Massive Britcom fan.
-
 IWEC *always* for I have severe social anxiety and probably won't respond to anything aside from crowns.
 
 Not looking to make new friends.
