@@ -11,24 +11,6 @@ https://github.com/user-attachments/assets/4e24f8b1-4437-424c-8886-6999450be8f6
 
 
 
-
-
-
-# <p align="center">Wes ☆ 9teen ☆ It/He</p>
-
-IWEC *always* for I have severe social anxiety and probably won't respond to anything aside from crowns.
-
-Not looking to make new friends.
-
-I am extremely critical of all the media I consume.
-
-***
-
-<img width="398" height="321" alt="image" src="https://github.com/user-attachments/assets/ed63cded-8036-4bf9-9b51-638c6b05f7bd" />
-
-
-***
-
 <p align="center">Cool websites:
 
 <p align="center"><a href="https://smokepowered.com"><img src="http://smokepowered.com/smoke.gif" height="33"/></a> 
