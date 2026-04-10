@@ -7,7 +7,13 @@
 
 
 
-https://github.com/user-attachments/assets/4e24f8b1-4437-424c-8886-6999450be8f6
+__**Comet - 19 - it/he**__
+
+![insta](https://github.com/user-attachments/assets/8797cc8a-37d7-46aa-9fa5-b271fcda4e20)
+
+DNI: font users and people 13 and under
+
+** **
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
