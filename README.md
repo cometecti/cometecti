@@ -5,13 +5,15 @@
 
 
 
+<img width="3000" height="120" alt="97eab7e753e1e113a9fb5e6dae24dcfb09ce20d3" src="https://github.com/user-attachments/assets/76d023da-e72f-4704-b3a1-972a8ff85138" />
+
+## comet - 19 - it / he
 
 
-__**Comet - 19 - it/he**__
 
-![insta](https://github.com/user-attachments/assets/8797cc8a-37d7-46aa-9fa5-b271fcda4e20)
+*offtab almost all the time, feel free to whisper, bad at conversation* 
 
-DNI: font users and people 13 and under
+<img width="164" height="184" alt="twitter_2048679566516891659" src="https://github.com/user-attachments/assets/ebed41e2-e2f5-49fb-bd7a-c8a9fb52ffb2" />
 
 ** **
 
