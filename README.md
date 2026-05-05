@@ -15,7 +15,7 @@
 
 i like rockstar games ummm i rlly liek gta and manhunt and bullyyyy
 
-dni if -16 or if you use fonts in your names. for minors, i won't become your friend, sorry, it's weird
+dni if -15 or if you use fonts in your names. for minors, i won't become your friend, sorry, it's weird
 
 <img width="164" height="184" alt="twitter_2048679566516891659" src="https://github.com/user-attachments/assets/ebed41e2-e2f5-49fb-bd7a-c8a9fb52ffb2" />
 
