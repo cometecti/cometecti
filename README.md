@@ -13,7 +13,7 @@
 
 *offtab almost all the time, feel free to whisper, bad at conversation* 
 
-i like rockstar games ummm i rlly liek gta and manhunt and bullyyyy
+i like video games
 
 dni if -15 or if you use fonts in your names. for minors, i won't become your friend, sorry, it's weird
 
