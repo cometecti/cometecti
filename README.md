@@ -23,7 +23,7 @@
 <h3>about</h3>
 <img src='https://github.com/user-attachments/assets/60fc891f-463c-4b08-bc97-04e1c4a64b49' width='300' />
 <p><em>offtab almost all the time, feel free to whisper - bad at conversation</em></p>
-<p>i like video games</p>
+<p>i like video games and listening to music and smoking weed</p>
 </td>
 
 <td width='4%'></td>
