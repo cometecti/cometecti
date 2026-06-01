@@ -1,11 +1,10 @@
-<div align='center'>
+
 
 <br>
 
-<img width='3000' height='120' src='https://github.com/user-attachments/assets/76d023da-e72f-4704-b3a1-972a8ff85138' />
-
-<br><br>
-
+<div align='center'>
+<img width="700" alt="tumblr_c9431b353cc216772185001968ebdf3c_d4bba289_2048" src="https://github.com/user-attachments/assets/ed26ee67-dd5e-49c2-8945-bc931e61c26e"/>
+<div align='center'>
 
 <h1>tank · 19 · it/he · audhd</h1>
 <p>
@@ -31,7 +30,7 @@
 <td width='48%' valign='top' align='center' border='1'>
 <h3>interests</h3>
 <p>
-  gta - manhunt - bully - codz<br>
+  <i>codz</i> - manhunt - bully - gta<br>
   deadlock - left 4 dead - half-life<br>
   remedyverse - britcoms
 </p>
@@ -65,3 +64,7 @@
 </td></tr></table>
 
 </div>
+
+<div align='center'>
+
+  ![art cred](https://www.tumblr.com/valkenopsia/815057046442590208?source=share)
