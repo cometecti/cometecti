@@ -66,5 +66,4 @@
 </div>
 
 <div align='center'>
-
-  ![art cred](https://www.tumblr.com/valkenopsia/815057046442590208?source=share)
+  <a href='https://www.tumblr.com/valkenopsia/815057046442590208?source=share'>art cred</a>
