@@ -4,7 +4,7 @@
 
 <div align='center'>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=2px&duration=1500&pause=500&color=AC0000&center=true&vCenter=true&width=500&lines=I'm+Americanized!;Nine+tons+of+crack+a+day!;I'm+Americanized!;It's+up+my+butt%2C+the+USA!;I'm+Americanized!;All+you+people+will+worship+us!;You+worship+me%2C+but+still+you+suck!;USA!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=2px&duration=1500&pause=500&color=AC0000&center=true&vCenter=true&width=500&lines=I'm+Americanized!;Nine+tons+of+crack+a+day!;I'm+Americanized!;It's+up+my+butt%2C+the+USA!;I'm+Americanized!;All+you+people+will+worship+us!;I'm+Americanized!;You+worship+me%2C+but+still+you+suck!;USA!)](https://git.io/typing-svg)
 
 <div align='center'>
 <img width="700" alt="tumblr_c9431b353cc216772185001968ebdf3c_d4bba289_2048" src="https://github.com/user-attachments/assets/ed26ee67-dd5e-49c2-8945-bc931e61c26e"/>
