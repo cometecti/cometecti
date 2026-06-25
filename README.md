@@ -34,7 +34,7 @@
 <td width='48%' valign='top' align='center' border='1'>
 <h3>interests</h3>
 <p>
-  <i>codz</i> - manhunt - bully - gta<br>
+  <i>borderlands - codz</i> - manhunt - bully - gta<br>
   deadlock - left 4 dead - half-life<br>
   remedyverse - britcoms
 </p>
