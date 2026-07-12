@@ -4,11 +4,13 @@
 
 <div align='center'>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=2px&duration=1500&pause=500&color=AC0000&center=true&vCenter=true&width=500&lines=I'm+Americanized!;Nine+tons+of+crack+a+day!;I'm+Americanized!;It's+up+my+butt%2C+the+USA!;I'm+Americanized!;All+you+people+will+worship+us!;I'm+Americanized!;You+worship+me%2C+but+still+you+suck!;USA!)](https://git.io/typing-svg)
+
 
 <div align='center'>
 <img width="400" alt="handsome jack ac further down" src="https://github.com/user-attachments/assets/698a3306-6f38-4ca6-a197-ea6bd74774ef"/>
 <div align='center'>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Michroma&size=15&duration=2000&pause=1000&color=09CEF7&center=true&vCenter=true&width=435&lines=Oh+there+ain't+no+rest+for+the+wicked;Money+don't+grow+on+trees;I+got+bills+to+pay%2C+I+got+mouths+to+feed;There+ain't+nothing+in+this+world+for+free;Oh+no%2C+I+can't+slow+down%2C+I+can't+hold+back;Though+you+know%2C+I+wish+I+could;Oh+no+there+ain't+no+rest+for+the+wicked;Until+we+close+our+eyes+for+good)](https://git.io/typing-svg)
 
 <h1>tank · 19 · it/he · audhd</h1>
 <p>
