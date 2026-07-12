@@ -7,7 +7,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=2px&duration=1500&pause=500&color=AC0000&center=true&vCenter=true&width=500&lines=I'm+Americanized!;Nine+tons+of+crack+a+day!;I'm+Americanized!;It's+up+my+butt%2C+the+USA!;I'm+Americanized!;All+you+people+will+worship+us!;I'm+Americanized!;You+worship+me%2C+but+still+you+suck!;USA!)](https://git.io/typing-svg)
 
 <div align='center'>
-<img width="700" alt="handsome jack ac further down" src="https://github.com/user-attachments/assets/698a3306-6f38-4ca6-a197-ea6bd74774ef"/>
+<img width="400" alt="handsome jack ac further down" src="https://github.com/user-attachments/assets/698a3306-6f38-4ca6-a197-ea6bd74774ef"/>
 <div align='center'>
 
 <h1>tank · 19 · it/he · audhd</h1>
