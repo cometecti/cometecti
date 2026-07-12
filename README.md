@@ -7,7 +7,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=2px&duration=1500&pause=500&color=AC0000&center=true&vCenter=true&width=500&lines=I'm+Americanized!;Nine+tons+of+crack+a+day!;I'm+Americanized!;It's+up+my+butt%2C+the+USA!;I'm+Americanized!;All+you+people+will+worship+us!;I'm+Americanized!;You+worship+me%2C+but+still+you+suck!;USA!)](https://git.io/typing-svg)
 
 <div align='center'>
-<img width="700" alt="tumblr_c9431b353cc216772185001968ebdf3c_d4bba289_2048" src="https://github.com/user-attachments/assets/ed26ee67-dd5e-49c2-8945-bc931e61c26e"/>
+<img width="700" alt="handsome jack ac further down" src="https://github.com/user-attachments/assets/698a3306-6f38-4ca6-a197-ea6bd74774ef"/>
 <div align='center'>
 
 <h1>tank · 19 · it/he · audhd</h1>
@@ -70,4 +70,4 @@
 </div>
 
 <div align='center'>
-  <a href='https://www.tumblr.com/valkenopsia/815057046442590208?source=share'>art cred</a>
+  <a href='https://www.tumblr.com/yulnik/801096258123104257/crazy-jackass?source=share'>art cred</a>
