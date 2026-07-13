@@ -8,7 +8,7 @@
 
 <br>
 
-<img src='https://img.shields.io/static/v1?label=&message=TANK&color=145A32&style=flat-square'/><img src='https://img.shields.io/static/v1?label=&message=19&color=1D8348&style=flat-square'/><img src='https://img.shields.io/static/v1?label=&message=IT/HE&color=239B56&style=flat-square'/><img src='https://img.shields.io/static/v1?label=&message=AUDHD&color=27AE60&style=flat-square'/>
+<img src='https://img.shields.io/static/v1?label=&message=TANK&color=145A32&style=flat-square'/><img src='https://img.shields.io/static/v1?label=&message=19&color=1D8348&style=flat-square'/><img src='https://img.shields.io/static/v1?label=&message=HE/HIM&color=239B56&style=flat-square'/><img src='https://img.shields.io/static/v1?label=&message=AUDHD&color=27AE60&style=flat-square'/>
 
 <a href='https://cometecti.straw.page'><img src='https://img.shields.io/static/v1?logo=strawpage&label=&message=STRAWPAGE&color=1B4F72&style=flat-square&logoColor=white'/></a><a href='https://rentry.co/cometecti'><img src='https://img.shields.io/static/v1?logo=rentry&label=&message=RENTRY&color=2874A6&style=flat-square&logoColor=white'/></a>
 
