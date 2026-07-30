@@ -44,9 +44,9 @@ i like video games and listening to music and smoking weed
 
 <br>
 
-*borderlands* · *codz* · manhunt · bully · gta · deadlock
+*nirvanna the band the show* · *borderlands* · *codz* · manhunt · bully · gta
 <br>
-left 4 dead · half-life · remedyverse · britcoms
+left 4 dead · half-life · remedyverse · britcoms · deadlock
 
 </div>
 
