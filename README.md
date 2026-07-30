@@ -102,7 +102,7 @@ under 15 · fonts in names
 
 <hr width='60%'>
 
-<a href='https://www.tumblr.com/yulnik/801096258123104257/crazy-jackass?source=share'><img src='https://img.shields.io/static/v1?label=&message=ART+CRED&color=1a1a1a&style=flat-square'/></a>
+
 <img src='https://komarev.com/ghpvc/?username=cometecti&color=1a1a1a&style=flat-square&label=VIEWS'/>
 
 </div>
