@@ -3,8 +3,7 @@
 
 
 
-
-https://github.com/user-attachments/assets/b56b182b-01ab-489e-8b13-b04bfdfa7c22
+<img width="540" height="440" alt="tumblr_de714b16d4fa7545b90674fb8847e675_dec7a866_540" src="https://github.com/user-attachments/assets/5636565d-4c91-44ef-a569-f95d2dfc9b31" />
 
 
 
@@ -12,7 +11,7 @@ https://github.com/user-attachments/assets/b56b182b-01ab-489e-8b13-b04bfdfa7c22
 
 <br>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Michroma&size=15&duration=2000&pause=1000&color=09CEF7&center=true&vCenter=true&width=435&lines=Oh+there+ain't+no+rest+for+the+wicked;Money+don't+grow+on+trees;I+got+bills+to+pay%2C+I+got+mouths+to+feed;There+ain't+nothing+in+this+world+for+free;Oh+no%2C+I+can't+slow+down%2C+I+can't+hold+back;Though+you+know%2C+I+wish+I+could;Oh+no+there+ain't+no+rest+for+the+wicked;Until+we+close+our+eyes+for+good)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=17&duration=3000&pause=2000&center=true&vCenter=true&width=435&lines=Oh-oh%2C+I+think+I'll+write+a+screenplay;Oh-oh%2C+I+think+I'll+take+it+to+L.A.+;Oh-oh%2C+I+think+I'll+get+it+done+yesterday;Ah...+shit!)](https://git.io/typing-svg)
 
 <br>
 
